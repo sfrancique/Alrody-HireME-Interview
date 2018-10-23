@@ -1,1 +1,0 @@
-# Alrody-HireME-Interview
